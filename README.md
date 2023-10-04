@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Alba, a future web developer and designer. You can also call me Al or Dani
+- 🔮 I’m interested in image! I love visual thinking and I believe in the power of images, including poetry
+- 💻 I’m currently learning full stack developement and SEO
+- 💙 I've studied arts in the past
+- 👯 I’m looking to collaborate on projects who need someone halfway between design and coding.
+- 🌺 🌿 Drawn to nature 🌿 🌺 🐄
+- 📫 Reach me at azulentagrafica@gmail.com
